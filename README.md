@@ -1,0 +1,1 @@
+Bu bot ile geri dönüşüm konusunda neler yapabileceğinizi öğrenebilir ve geri dönüşümle alakalı bazı görseller görebilirsiniz. Bu şekilde çevrenizi ve kendinizi bilinçlendirebilir ve sürdürülebilirliğe katkıda bulunabilirsiniz.
